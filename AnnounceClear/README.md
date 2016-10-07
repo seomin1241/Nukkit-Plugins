@@ -1,0 +1,1 @@
+http://hgrpg.f4m.kr/AnnounceClear.jar
